@@ -1,4 +1,7 @@
-Hello, name's Vici, now I'm a student of Computational Physics in the Physics Institute of São Carlos (IFSC) - University of São Paulo (USP).
+Hello, I'm Vici, nice to see you here!
+🏳️‍⚧️ She/Her 
+
+I'm a student of Computational Physics in the Physics Institute of São Carlos (IFSC) - University of São Paulo (USP).
 Not much to speak about, if you want to know more about me, you can check my website.
 
 Current learning:
